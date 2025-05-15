@@ -11,14 +11,14 @@ A weekend of corn skiing, alpine sunsets, and good times at the 5040 Hut.
 **Car 1 – Horseshoe Bay (1:25 PM Ferry)**  
 - Kelsie (1)
 - Peter (2) (No Red or White or Yellow onions)
-- Erin (3) (dairy allergy)
-- Alexa (4) (vegetarian, okay with meat cooked by others)
+- Erin (3) (Dairy allergy)
+- Alexa (4) (Vegetarian, okay with meat cooked by others)
 - Jason (5)
 
 **Car 2 – South Surrey Losers (3:15 PM Ferry)**
 - Izzy (6)
-- RobM (7) (nut allergy)
-- Yolanda (8) (Pickup in Nanaimo)
+- RobM (7) (Nut allergy)
+- Yolanda (Shellfish allergy) (8) (Pickup in Nanaimo)
 
 ### Island Crew
 **Car 3 - Early birds who don't work friday**  
@@ -57,6 +57,7 @@ A weekend of corn skiing, alpine sunsets, and good times at the 5040 Hut.
 - **RobM:** Nut allergy
 - **Peter:** No Red or White or Yellow onions
 - **Alexa:** Vegetarian (okay with some meat) (Vegetarian powers may be revoked)
+- **Yolanda:** Shellfish allergy
 
 ### Kitchen Notes
 - Fully equipped hut kitchen (stove, pots, pans, utensils)  
