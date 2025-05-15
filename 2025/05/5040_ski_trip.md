@@ -3,7 +3,12 @@
 
 ## Overview
 A weekend of corn skiing, alpine sunsets, and good times at the 5040 Hut.
-
+https://accvi.ca/5040-peak-hut/
+Location: Lat/Long 49.18916667, -125.28750000
+Quick Description: Summer: A 2.4km hike up the Cobalt Lake Trail. Winter: Up to 12km ski. Distance depends on the snow line on the Marion Creek Forest Service Road.
+A 4WD/AWD vehicle is required to access the trailhead.
+Elevation Gain to Hut: Summer: 700 m (2300 ft). Winter: up to 1175 m (3850 ft).
+Approach Time: Summer: 2-3 hours. Winter: 4-12 hours.
 
 ## 🚐 People / Travel Plan
 
