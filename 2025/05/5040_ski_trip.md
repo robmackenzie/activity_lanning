@@ -56,9 +56,9 @@ https://accvi.ca/5040-peak-hut/
 - **Dinner:** 🌮 Taco Night  
 #### Sunday
 - **Breakfast:** RobM – 🍳 Eggs Benedict  
-- **Dinner 2 (Island crew):** _TBD_ (let us know your plan!)
+- **Dinner 2 (Island crew): Burgers by Jess and Rodney.
 #### Monday
-- **Breakfast:** TBD
+- **Breakfast:** TBD (Probably sausage with eggs in wraps, mixed with any leftovers?)
 
 #### Lunches / Snacks
 - Casual group snacking — charcuterie, wraps, dried fruit, cheese, crackers, trail mix, etc.
