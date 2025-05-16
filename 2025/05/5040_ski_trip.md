@@ -1,5 +1,3 @@
-
-
 # 5040 Hut Ski Tour – May Long Weekend (May 16–19, 2025)
 
 ## Overview
@@ -74,10 +72,7 @@ https://accvi.ca/5040-peak-hut/
 - **Yolanda:** Shellfish allergy
 
 ### Kitchen Notes
-- Fully equipped hut kitchen (stove, pots, pans, utensils)  
----
-
----
+- Fully equipped hut kitchen (stove, pots, pans, utensils)
 
 ## 🎒 Packing List
 
@@ -95,8 +90,6 @@ https://accvi.ca/5040-peak-hut/
 - Sunglasses + sunscreen
 - Water bottle
 - Towel of some sort
-
-
 
 ## ⛷️ Activities
 
