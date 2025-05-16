@@ -56,7 +56,7 @@ https://accvi.ca/5040-peak-hut/
 - **Dinner:** 🌮 Taco Night  
 #### Sunday
 - **Breakfast:** RobM – 🍳 Eggs Benedict  
-- **Dinner 2 (Island crew): Burgers by Jess and Rodney.
+- **Dinner 2 (Island crew):** Burgers by Jess and Rodney.
 #### Monday
 - **Breakfast:** TBD (Probably sausage with eggs in wraps, mixed with any leftovers?)
 
@@ -90,6 +90,7 @@ https://accvi.ca/5040-peak-hut/
 - Sunglasses + sunscreen
 - Water bottle
 - Towel of some sort
+- Plastic bags for ski boots (and anything else to be kept dry)
 
 ## ⛷️ Activities
 
