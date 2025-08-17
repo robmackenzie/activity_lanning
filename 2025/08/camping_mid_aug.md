@@ -5,10 +5,10 @@
 Simple hike up crown Mountain
 
 ## Timeline
-10:00 Meet at grouse mountain base, to hike BCMC
-11:30 Top of Gondola
-5:00 Complete hike
-5:30 Down Gondola back at cars
+10:20 Meet at grouse mountain base, to hike BCMC
+11:50 Top of Gondola
+5:20 Complete hike
+5:50 Down Gondola back at cars
 
 ## 🚐 People
 
