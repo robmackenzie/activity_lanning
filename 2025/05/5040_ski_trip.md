@@ -1,9 +1,21 @@
-
 # 5040 Hut Ski Tour – May Long Weekend (May 16–19, 2025)
 
 ## Overview
+
 A weekend of corn skiing, alpine sunsets, and good times at the 5040 Hut.
 
+https://accvi.ca/5040-peak-hut/ 
+ - Location: Lat/Long: 49.18916667, -125.28750000 
+ - Quick Description: 
+	 - Summer: A 2.4km hike up the Cobalt Lake Trail. 
+	 - Winter: Up to 12km ski. 
+	 - Distance depends on the snow line on the Marion Creek Forest Service Road. A 4WD/AWD vehicle is required to access the trailhead. 
+- Elevation Gain to Hut: 
+	- Summer: 700m (2300 ft). 
+	- Winter: up to 1175 m (3850 ft).
+- Approach Time: 
+	- Summer: 2-3 hours. 
+	- Winter: 4-12 hours.
 
 ## 🚐 People / Travel Plan
 
@@ -11,14 +23,14 @@ A weekend of corn skiing, alpine sunsets, and good times at the 5040 Hut.
 **Car 1 – Horseshoe Bay (1:25 PM Ferry)**  
 - Kelsie (1)
 - Peter (2) (No Red or White or Yellow onions)
-- Erin (3) (dairy allergy)
-- Alexa (4) (vegetarian, okay with meat cooked by others)
+- Erin (3) (Dairy allergy)
+- Alexa (4) (Vegetarian, okay with meat cooked by others)
 - Jason (5)
 
 **Car 2 – South Surrey Losers (3:15 PM Ferry)**
 - Izzy (6)
-- RobM (7) (nut allergy)
-- Yolanda (8) (Pickup in Nanaimo)
+- RobM (7) (Nut allergy)
+- Yolanda (Shellfish allergy) (8) (Pickup in Nanaimo)
 
 ### Island Crew
 **Car 3 - Early birds who don't work friday**  
@@ -44,9 +56,9 @@ A weekend of corn skiing, alpine sunsets, and good times at the 5040 Hut.
 - **Dinner:** 🌮 Taco Night  
 #### Sunday
 - **Breakfast:** RobM – 🍳 Eggs Benedict  
-- **Dinner 2 (Island crew):** _TBD_ (let us know your plan!)
+- **Dinner 2 (Island crew):** Burgers by Jess and Rodney.
 #### Monday
-- **Breakfast:** TBD
+- **Breakfast:** TBD (Probably sausage with eggs in wraps, mixed with any leftovers?)
 
 #### Lunches / Snacks
 - Casual group snacking — charcuterie, wraps, dried fruit, cheese, crackers, trail mix, etc.
@@ -57,12 +69,10 @@ A weekend of corn skiing, alpine sunsets, and good times at the 5040 Hut.
 - **RobM:** Nut allergy
 - **Peter:** No Red or White or Yellow onions
 - **Alexa:** Vegetarian (okay with some meat) (Vegetarian powers may be revoked)
+- **Yolanda:** Shellfish allergy
 
 ### Kitchen Notes
-- Fully equipped hut kitchen (stove, pots, pans, utensils)  
----
-
----
+- Fully equipped hut kitchen (stove, pots, pans, utensils)
 
 ## 🎒 Packing List
 
@@ -80,8 +90,7 @@ A weekend of corn skiing, alpine sunsets, and good times at the 5040 Hut.
 - Sunglasses + sunscreen
 - Water bottle
 - Towel of some sort
-
-
+- Plastic bags for ski boots (and anything else to be kept dry)
 
 ## ⛷️ Activities
 
